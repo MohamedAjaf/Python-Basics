@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MohamedAjaf
-- 👀 I’m interested in Photo Editing, Coding and Gaming.
+- 👀 I’m interested in UI Designing, Coding and Photography.
 - 🌱 I’m currently learning B.E.CSE at Sri Sairam Enginnering College
 - 📫 Can reach me through my mail mmdajaf2468@gmail.com
 
